@@ -71,7 +71,7 @@
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
 - ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [ Mehedi364 3Dot
-](https://youtube.com/channel/UC7jw9rM4ovrWgnJIzKmJ5Fw)
+](https://youtube.com/channel/UC6y1gQO754SIdQWdQthPKXw)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
